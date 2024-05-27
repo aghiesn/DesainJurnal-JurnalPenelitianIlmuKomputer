@@ -1,0 +1,1 @@
+# DesainJurnal-JurnalPenelitianIlmuKomputer
